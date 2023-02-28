@@ -1,6 +1,6 @@
 -  Hi, I’m Sushant
 -  I’m interested in Web Development
--  I’m currently learning Computer Science[second year] and I am familiar with C,C++ and JAVA
+-  I’m currently learning Computer Science[second year] and I am familiar with C,JAVA adn Python
 -  I’m looking to collaborate on some projects which can help me to increse my experience. 
 -  How to reach me : Mail:- sushantumap2253@gmail.com
 
