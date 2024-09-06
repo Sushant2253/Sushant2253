@@ -3,11 +3,11 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sushant2253&label=Profile%20views&color=0e75b6&style=flat" alt="sushant2253" /> </p>
 
-- 🌱 I’m currently learning **Backend**
+- 🌱 I’m currently learning **DSA**
 
 - 👯 I’m looking to collaborate on **MERN Projects**
 
-- 💬 Ask me about **Javascript, React**
+- 💬 Ask me about **Python, Express**
 
 - 📫 How to reach me **sushantumap1234@gmail.com**
 
