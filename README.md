@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sushantumap1234@gmail.com**
 
-- ⚡ Fun fact **I am lazy but can complete tasks in required time**
+- ⚡ Fun fact **I am lazy but can complete tasks in needed time**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
