@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sushantumap1234@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1mA8p7NwJ8cpoP-2qn5XDOS-qB5gnOcHd/view?usp=sharing](https://drive.google.com/file/d/1mA8p7NwJ8cpoP-2qn5XDOS-qB5gnOcHd/view?usp=sharing)
+- 📄 Know about me [https://drive.google.com/file/d/1mA8p7NwJ8cpoP-2qn5XDOS-qB5gnOcHd/view?usp=sharing](https://drive.google.com/file/d/1mA8p7NwJ8cpoP-2qn5XDOS-qB5gnOcHd/view?usp=sharing)
 
 - ⚡ Fun fact **I am lazy but I can do my work in time**
 
